@@ -1,2 +1,2 @@
-# MySocials
-my soical links
+# Trying to go on the website? 🤔
+Dont worry, I gotcha covered!
